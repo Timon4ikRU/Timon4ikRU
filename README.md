@@ -6,7 +6,5 @@
 - 😄 Pronouns: ...
 - ⚡ Fun fact: I live in the oil capital of the Russian Federation.
 
-<!---
-Timon4ikRU/Timon4ikRU is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-You can click the Preview link to take a look at your changes.
---->
+ATTENTION! I HAVE BEEN HACKED, SO PLEASE DO NOT GO TO THE CARDS LISTED HERE AND DO NOT BELIEVE WHAT SOMEONE WRITES ON MY BEHALF!
+ВНИМАНИЕ! МЕНЯ ВЗЛОМАЛИ, ПОЭТОМУ ПРОШУ НЕ ЗАХОДИТЬ НА КАРТЫ КОТОРЫЕ ТУТ УКАЗАНЫ, И НЕ ВЕРИТЬ ТОМУ ЧТО КТО ТО ПИШЕТ ОТ МОЕГО ИМЕНИ!
